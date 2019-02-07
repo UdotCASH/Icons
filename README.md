@@ -1,1 +1,1 @@
-# PNG and Adobe Illustrator (AI) files for U.cASH and UCASH.  
+# PNG and Adobe Illustrator (AI) files for U.CASH network and UCASH network currency.  
